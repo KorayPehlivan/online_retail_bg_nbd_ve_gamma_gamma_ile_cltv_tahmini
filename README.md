@@ -1,0 +1,1 @@
+# online_retail_bg_nbd_ve_gamma_gamma_ile_cltv_tahmini
